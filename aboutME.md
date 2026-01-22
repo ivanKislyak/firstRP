@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ivan
-- 👀 I’m interested in Streams on listen to Music
+- 👀 I’m interested in listening to Music
 - 🌱 I’m currently learning language lessons
 - 📫 How to reach me? Gmail - kislyak.help@gmail.com; Telegram - @ivan_4919
 
